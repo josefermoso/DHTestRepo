@@ -1,2 +1,2 @@
 # DH ANDROID TIENE AGUANTE
-# Belgrano no tiene aguante
+# Verde por fuera y blanco por dentro si quieres que te lo diga espera
